@@ -1,4 +1,6 @@
-# posh115
+Women Harassment Act at Workplace - POSH Law
+![image](https://user-images.githubusercontent.com/102798589/162390383-4daf5e36-f34c-403a-b3ee-044616445787.png)
+
 One of the greatest impediments to gender equality is workplace sexual harassment of women. The Sexual Harassment of women at workplace (Prevention, Prohibition and Redressal) Act, 2013 and its accompanying rules (POSH Laws) went into effect in an effort to create a safe and inclusive workplace for women. The Act on the Prevention of Sexual Harassment at workplace for women. The Act on the Prevention of Sexual Harassment at Workplace (posh law) applies to ant workplace, facility, firm or organisation with more than ten workers.
 
 What is posh law?
