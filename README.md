@@ -8,6 +8,8 @@ Sexual harassment victims have a variety of physiological impacts, including str
 
 The posh law specifies the words "sexual harassment," "workplace," and "aggrieved woman," all of which must be understood in order to assure a harassment-free workplace. The women harassment act also provides mandates for organizations/employers to follow, such as the formation of the Internal Complaints Committee (ICC). The rules governing the Local Complaints Committee, filing a complaint, and the ICC's investigation are also thoroughly discussed. Other obligations of the employer are outlined in the Act, such as ensuring a safe working environment and displaying the legal penalties of sexual harassment.
 
+https://muds.co.in/posh-act-2013-sexual-harassment-women-workplace/
+
 https://muds.co.in/empanel-external-member-posh-icc-committee/
 ![image](https://user-images.githubusercontent.com/102798589/162390247-8ddd58bc-318e-4d74-9576-fb01eb4b4c96.png)
 
